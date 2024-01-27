@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ltx-github(liutx2014@outlook.com)
+- 👀 I’m interested in novel web page.
+- 🌱 I’m currently learning... A lot! (haha)
+- 💞️ I’m looking to collaborate on... I don't need collaborate! (haha)
+- 📫 You can contact me at liutx2014@outlook.com
+- ⚡ Fun fact: Um... I am a funny guy, just like to use code to make something.
+- 🔒 A secret: As for computers, I only spend 15 minutes a day coding. (Did you find anything?)
